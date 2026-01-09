@@ -39,7 +39,7 @@ I enjoy building **production-ready APIs**, working with **machine learning mode
 
 - 📫 **Reach Me At**  
   • Email: **shaz3634@gmail.com**  
-  • LinkedIn: https://www.linkedin.com/in/shaz-alam-2630b1222  
+  • LinkedIn: https://www.linkedin.com/in/shaz-alam
   • GitHub: https://github.com/Shaz999  
 
 - ⚡ **Fun Fact**  
